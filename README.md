@@ -1,0 +1,1 @@
+# Task_KAGAWA_AI
